@@ -6,3 +6,7 @@
 ![image](https://github.com/ErgilC1780/examenFinal/assets/85023418/9be084b4-db21-400a-bfff-3e07ebad4e3b)
 ![image](https://github.com/ErgilC1780/examenFinal/assets/85023418/2472ce19-a84c-4109-9631-9e631ddf941c)
 
+
+reporte: 
+https://app.clockify.me/shared/654f8e77e46c5a213634a898
+
